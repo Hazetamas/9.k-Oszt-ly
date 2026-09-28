@@ -1,1 +1,1 @@
-# 9.k-Oszt-ly
+# 9.k-Osztaly
